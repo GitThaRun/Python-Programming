@@ -39,7 +39,7 @@ This repo helps me — and hopefully others too — improve logical thinking and
 ## 🔗 Connect
 
 📬 Let's learn and grow together!  
-Feel free to connect with me on [LinkedIn] ((https://www.linkedin.com/in/jami-tharun/)) or follow my progress!
+Feel free to connect with me on [LinkedIn] (https://www.linkedin.com/in/jami-tharun/) or follow my progress!
 
 ---
 
